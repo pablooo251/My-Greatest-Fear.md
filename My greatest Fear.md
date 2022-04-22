@@ -1,0 +1,1 @@
+My greatest fea r is heights. I never feel like im safe while in a really tall building or on a roller coaster. Some really high places could be the end of you if you even tripped.Even the tall places that i know are safe scare the life out of me and would way rather be on the ground.
